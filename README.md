@@ -3,4 +3,4 @@ primeira aula de nicho 2024
 
 # Autor
 
-Juliana S S Luz
+Juliana S S Luz 
